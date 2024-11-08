@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @mqh668
+- 👀 I am from Jinan, China
+- 🌱 I am currently studying VCI
+- 💞️ My job is as a PSA technology expert for China Shenlong
+- 📫 How to reach me jnzhym_maoqinghe@163.com
